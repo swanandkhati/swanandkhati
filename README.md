@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @swanandkhati
-- 👀 I’m an engineer by education and a writer by profession.
+- 👀 I’m an engineer by education and a writer by profession | I am a content generalist specialising in providing custom content solutions for all types of content related problems.
 - 🌱 I have an MBA in marketing, specializing in e-sports.
 - 💞️ I’m looking to collaborate on whatever I am able to.
 - 📫 How to reach me: send me an email at swanandkhati029@gmail.com. Just don't spam please🐱 .
